@@ -6,7 +6,7 @@ Got a crazy idea this morning after a long sleepless night.
 I'm seeking a girlfriend who loves coding and swimming like me, and as I'm a such one who have no experience of dating or so,
 I created this project called "LoveHandle".
 
-Find me on Facebook http://www.facebook.com/alexander.forselius1
+Find me on Facebook http://www.facebook.com/alexander.forselius
 
 
 In case of relationship
